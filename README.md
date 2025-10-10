@@ -17,4 +17,10 @@ no  DNI
 ---
 
 <p align="center">
+HEAVY  dummy  fictive  .  DOUBLES  DNI
 system – OSDD 1
+
+---
+
+<p align="center">
+dialog  test
