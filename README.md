@@ -4,9 +4,15 @@
   
 ---
 <p align="center">
+dummy / kitty / evan
+<p align="center">
 🇬🇧 / 🇯🇵 / 🇧🇩
 <p align="center">
 aroace  +  agender
+<p align="center">
+do  NOT  copy  our  ponies  ,  only  SMALL  inspo  is  okay
+<p align="center">
+no  DNI
 
 ---
 
