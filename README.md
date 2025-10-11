@@ -24,4 +24,4 @@ system – OSDD 1
 ---
 
 <p align="center">
-dialog  test
+(´▽ ` *)
