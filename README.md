@@ -17,7 +17,7 @@ no  DNI
 ---
 
 <p align="center">
-HEAVY  dummy  fictive  .  DOUBLES  DNI
+HEAVY  dummy  fictive  .  DOUBLES  IWEC
 <p align="center">
 system – OSDD 1
 
