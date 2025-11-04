@@ -1,10 +1,10 @@
-![image alt](https://github.com/kittydummy/kittydummy/blob/bccfedc9846f772d1d2a4b9c134779f1bc2b2d27/af48e123-5b1f-4f44-a175-387074bf38c4.jpeg)
+![image alt](https://github.com/kittydummy/kittydummy/blob/af6aa3bbd75b0d38a991d2b9566deb21121ee5b7/tumblr_03b30e9d3181eddc8fa93cf6784bbdc9_3ee5c3e2_1280.png)
 <p align="center">
 ( ;´･ω･`)
   
 ---
 <p align="center">
-dummy / kitty / evan
+dummy / 007e7 / evan
 <p align="center">
 🇬🇧 / 🇯🇵 / 🇧🇩
 <p align="center">
@@ -17,7 +17,7 @@ no  DNI
 ---
 
 <p align="center">
-HEAVY  dummy  fictive  .  DOUBLES  IWEC
+HEAVY  007e7  fictive  .  DOUBLES  IWEC
 <p align="center">
 system – OSDD 1
 
