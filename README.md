@@ -19,7 +19,7 @@ no  DNI
 <p align="center">
 HEAVY  dummy  fictive  .  DOUBLES  IWEC
 <p align="center">
-007e7  is  a  HUGE  comfort  character
+007e7  is  a  HUGE  comfort  character  <3
 <p align="center">
 system – OSDD 1
 
