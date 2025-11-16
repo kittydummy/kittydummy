@@ -17,7 +17,9 @@ no  DNI
 ---
 
 <p align="center">
-HEAVY  007e7  fictive  .  DOUBLES  IWEC
+HEAVY  dummy  fictive  .  DOUBLES  IWEC
+<p align="center">
+007e7  is  our  comfort  character  FYI
 <p align="center">
 system – OSDD 1
 
