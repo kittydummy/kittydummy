@@ -1,4 +1,4 @@
-![image alt](https://github.com/kittydummy/kittydummy/blob/af6aa3bbd75b0d38a991d2b9566deb21121ee5b7/tumblr_03b30e9d3181eddc8fa93cf6784bbdc9_3ee5c3e2_1280.png)
+![image alt](https://github.com/kittydummy/kittydummy/blob/b2a450c41b840ac78ddeca3dd1bd8c2aaede6e9c/OGLezus.webp)
 <p align="center">
 ( ;´･ω･`)
   
