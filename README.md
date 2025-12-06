@@ -11,7 +11,7 @@ dummy / lezus / evan
 <p align="center">
 aroace  +  agender
 <p align="center">
-no  DNI
+DNI list is on strawpage
 
 ![image alt](https://github.com/kittydummy/kittydummy/blob/bacb7b817c1f893e6ad5b3d87d3ce0f9a24b9e7d/tumblr_59be7814b24f02aeb69195006f4615dd_2b678ba5_2048.png)
 
