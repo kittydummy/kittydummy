@@ -9,9 +9,9 @@ dummy / lezus / evan
 <p align="center">
 🇬🇧 / 🇯🇵 / 🇧🇩
 <p align="center">
-aroace  +  agender
+aroace  +  demiboy
 <p align="center">
-DNI list is on strawpage
+DNI list is on strawpage !!
 
 ![image alt](https://github.com/kittydummy/kittydummy/blob/bacb7b817c1f893e6ad5b3d87d3ce0f9a24b9e7d/tumblr_59be7814b24f02aeb69195006f4615dd_2b678ba5_2048.png)
 
