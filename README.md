@@ -10,8 +10,6 @@ dummy / lezus / evan
 <p align="center">
 aroace  +  agender
 <p align="center">
-do  NOT  copy  our  ponies  ,  only  SMALL  inspo  is  okay
-<p align="center">
 no  DNI
 
 ---
