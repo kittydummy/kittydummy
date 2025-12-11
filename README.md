@@ -16,7 +16,7 @@ DNI list is on strawpage !!
 ![image alt](https://github.com/kittydummy/kittydummy/blob/bacb7b817c1f893e6ad5b3d87d3ce0f9a24b9e7d/tumblr_59be7814b24f02aeb69195006f4615dd_2b678ba5_2048.png)
 
 <p align="center">
-HEAVY  dummy  fictive  .  DOUBLES  DNI
+matching  with  our  cutie
 <p align="center">
 system – OSDD 1
 
