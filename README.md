@@ -14,7 +14,7 @@
 
 <p align="center"> We're usually offtab/AFK, so don't expect us to reply to you even if you whisper us. We probably will be available whenever our friends are around though! Our timezone is UTC+0, and we're usually unavailable by 6:00 AM to 4:40 PM, weekdays only, due to work. Most of the time we're very tired, but we're always up to talk to our oomfs ^3^
 <h2 align="center">BOUNDARIES</h2>
-<p align="center"> We're a HUGE Lezus and Dummy fictive, we recommend doubles to not interact with us as we will feel very uncomfortable. People calling us 'dad' and other variants is okay, as long as it doesn't become unhealthy or parasocial. We WILL stop this obehavior when we deem it necessary. Do not use any feminine terms on us, and are only ever okay if a female alter is present. 
+<p align="center"> We're a HUGE Lezus and Dummy fictive, we recommend doubles to not interact with us as we will feel very uncomfortable. People calling us 'dad' and other variants is okay, as long as it doesn't become unhealthy and/or parasocial. We WILL stop this behavior when we deem it necessary. Do not use any feminine terms on us, and are only ever okay if a female alter is present. 
 <p align="center">
 <sub>
 To the people who keep bugging us in our strawpage of why we don't talk at first: We don't owe you an explanation and mind your own business, because us not talking isn't killing anyone, okay..?
