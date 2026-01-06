@@ -17,7 +17,7 @@
 <p align="center"> We're a HUGE Lezus and Dummy fictive, we recommend doubles to not interact with us as we will feel very uncomfortable. People calling us 'dad' and other variants is okay, as long as it doesn't become unhealthy or parasocial. We WILL stop this obehavior when we deem it necessary. Do not use any feminine terms on us, and are only ever okay if a female alter is present. 
 <p align="center">
 <sub>
-Also to the people who keep bugging us in our strawpage of why we don't talk at first, we don't owe you a proper explanation but we're just very nervous all the time and shy in general, okay..?
+To the people who keep bugging us in our strawpage of why we don't talk at first: We don't owe you an explanation and mind your own business, because us not talking isn't killing anyone, okay..?
 
 <h2 align="center">DNI</h2>
 <p align="center">
