@@ -21,7 +21,7 @@ To the people who keep bugging us in our strawpage of why we don't talk at first
 
 <h2 align="center">DNI</h2>
 <p align="center">
-Our full DNI list is on strawpage. And although we have a DNI list, we don’t take most of it literally; it’s more of a warning if you fall under what it describes. We do not ofcourse, expect people to respect it, which is why we block freely. People we block are often: People who cover us, Murder Drone fans, -13 attempting to befriend us, and just weirdos in general...
+Our full DNI list is on strawpage. And although we have a DNI list, we don’t take most of it literally; it’s more of a warning if you fall under what it describes. Besides that, we block very freely. People we block are often: People who cover us, Murder Drone fans, -13 attempting to befriend us, and just weirdos in general...
 
 ![image alt](https://github.com/kittydummy/kittydummy/blob/bacb7b817c1f893e6ad5b3d87d3ce0f9a24b9e7d/tumblr_59be7814b24f02aeb69195006f4615dd_2b678ba5_2048.png)
 
