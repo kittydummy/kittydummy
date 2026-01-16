@@ -8,7 +8,7 @@
 <p align="center">
   <sub>
 (Our strawpage has basically the same info BTW :P)
-<p align="center"> Hi!! We prefer to be called Dummy or Lezus (Evan works fine too :D), but you can call us whatever pony we're using ingame! We're diagnosed with OSDD and ASPD, and we're aroace & demiboy. We're Japanese, British, and Bengali, & we know only Japanese, English, and very limited Russian.
+<p align="center"> Hi!! We prefer to be called Dummy or Lezus (Evan works fine too :D), but you can call us whatever pony we're using ingame! We're diagnosed with OSDD and ASPD, and we're aroace & demiboy. We're Japanese, British, and Bengali and we're still actively learning English...!!
 
 <p align="center"> Bodily 19!!! If you're under 13, do NOT interact with us... If you're under 16, do not expect us to treat you like a close friend, thank you ^_^. Some information about us is that we know many games in Roblox like SEWH, DG/FS, Regretevator, GASA4, Forsaken, Phighting, you get the gist... But we do not like interacting with people apart of those fandoms most of the time, sorry! We're a HUGE fan of Roblox myths though (Can you tell we really like Lezus? No? oh ok), so please don't be afraid to sit near us if you like them too :3
 
