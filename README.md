@@ -1,5 +1,11 @@
 ![image alt](https://github.com/kittydummy/kittydummy/blob/a4dddbcbf0af331dc869f3708a7c1326a32ac0af/tumblr_347ccacf3cd77686fba257c92e7603de_445f8e24_2048.png)
-![image alt](https://github.com/kittydummy/kittydummy/blob/5dc0b4beff6769c2156a71da5ac02ad93f4e692f/Untitled709_20251206001623.png)
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=kittydummy&label=frags&color=000000&style=flat" />
+</p>
+
+<p align="center">
+<img src="https://github.com/kittydummy/kittydummy/blob/5dc0b4beff6769c2156a71da5ac02ad93f4e692f/Untitled709_20251206001623.png" />
+</p>
 <p align="center">
 ( ;´･ω･`)
   
