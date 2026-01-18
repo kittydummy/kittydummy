@@ -23,4 +23,12 @@ tick  ,  tock  ,  tick  ,  tock <br>
 <p align="center">
 <sub>
 ( ;´･ω･`)
+<p align="center">
+  
+---
+  
+<p align="center">
+<img src="https://github.com/kittydummy/kittydummy/blob/6684393178f4aaec166b1ab3a95a8229a7486f5d/lezusandnolifightingreal.gif" width="300"/> <br>
+  <sub>
+(lezuz and noli fighting, NOT fake ;-;)
   
