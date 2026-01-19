@@ -9,7 +9,7 @@ tick  ,  tock  ,  tick  ,  tock <br>
 </sub>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/f86efadb3e7469327a6575659ade37b03d42cd56/Untitled757_20260118022853.png" width="300"/>
+<img src="https://github.com/kittydummy/kittydummy/blob/1a26513461caa8c4d274dc6c0c22d5d9c0365299/lalalal%20yaoi.webp" width="400"/>
 </p>
 <p align="center">
   <sub>
