@@ -22,7 +22,7 @@ Unavailable between 8:40 AM and 4:40 PM, weekdays only. We also take naps throug
 <p align="center">
 We don't like being referred as a female in any way, please only do that when a female alter is fronting
 <p align="center">
-  We enjoy games like forsaken, DoD, GASA4, Phighting, Regretevator, An Underground Hangout Gamw, FNaF, Vocaloid, etc
+  We enjoy games like forsaken, DoD, GASA4, Phighting, Regretevator, An Underground Hangout Game, FNaF, Vocaloid, etc
   <p align="center">
     Fandoms of these games IWEC or DNIUID.
   <p align="center">
