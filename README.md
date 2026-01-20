@@ -15,6 +15,8 @@ iwc at all times pls
 You can call us Lezus or Dummy, but Evan works fine too!! We're a HUGE Lezus and Dummy fictive, doubles DNI /SRS   
 <p align="center">
 We're Japanese, English, and Bengali
+    <p align="center">
+      We're still learning English, please correct us if we do make errors!
 <p align="center">
 Unavailable between 8:40 AM and 4:40 PM, weekdays only. We also take naps throughout the day since we never sleep..
 <p align="center">
