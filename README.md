@@ -6,7 +6,36 @@
 tick  ,  tock  ,  tick  ,  tock <br>
   OSDD  .  ASPD <br>
 iwc at all times pls
-</sub>
+<sub>
+  <details>
+  <summary align="center"><sub>info</sub></summary>
+
+  <div align="center">
+    <sub>
+You can call us Lezus or Dummy, but Evan works fine too!! We're a HUGE Lezus and Dummy fictive, doubles DNI /SRS   
+<p align="center">
+We're Japanese, English, and Bengali
+<p align="center">
+Unavailable between 8:40 AM and 4:40 PM, weekdays only. We also take naps throughout the day since we never sleep..
+<p align="center">
+We don't like being referred as a female in any way, please only do that when a female alter is fronting
+<p align="center">
+  We enjoy games like forsaken, DoD, GASA4, Phighting, Regretevator, An Underground Hangout Gamw, FNaF, Vocaloid, etc
+  <p align="center">
+    Fandoms of these games IWEC or DNIUID.
+  <p align="center">
+Roblox myths please interact you all are so cool we love you guys /p
+<p align="center">
+There is no cure to ASPD, but we're actively working on managing it and reducing harmful behaviors. We are terribly sorry if we have ever hurt you.
+  
+<p align="center">
+Even if we may not talk at first we still love meeting people!! Don't be afraid to sit near us ^_^.
+  <p align="center">
+<sub>It's NONE of your business to why we choose not to speak and do not pressure us into doing so. If you REALLY can't handle it, DNI. It's not a big deal. </sub>
+
+      
+  </div>
+</details>
 
 <p align="center">
 <img src="https://github.com/kittydummy/kittydummy/blob/1a26513461caa8c4d274dc6c0c22d5d9c0365299/lalalal%20yaoi.webp" width="400"/>
