@@ -27,6 +27,8 @@ We don't like being referred as a female in any way, please only do that when a 
     Fandoms of these games IWEC or DNIUID.
   <p align="center">
 Roblox myths please interact you all are so cool we love you guys /p
+    <p align="center">
+      We don't like being purposely ignored or anything for long periods of time. Sorry.
 <p align="center">
 There is no cure to ASPD, but we're actively working on managing it and reducing harmful behaviors. We are terribly sorry if we have ever hurt you.
   
