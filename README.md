@@ -24,7 +24,7 @@ We don't like being referred as a female in any way, please only do that when a 
 <p align="center">
   We enjoy things like forsaken, DoD, GASA4, Phighting, Regretevator, An Underground Hangout Game, FNaF, Vocaloid, etc
   <p align="center">
-    Fandoms of these games IWEC or DNIUID.
+    Fandoms of these ROBLOX games IWEC or DNIUID.
   <p align="center">
 Roblox myths please interact you all are so cool we love you guys /p
     <p align="center">
