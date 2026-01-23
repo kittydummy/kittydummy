@@ -27,6 +27,8 @@ We don't like being referred as a female in any way, please only do that when a 
     Fandoms of these ROBLOX games IWEC or DNIUID.
   <p align="center">
 Roblox myths please interact you all are so cool we love you guys /p
+     <p align="center">
+       Very sharing Noli yume heh. He loves us all!
     <p align="center">
       We don't like being purposely ignored or anything for long periods of time. Sorry.
 <p align="center">
