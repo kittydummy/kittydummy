@@ -42,7 +42,7 @@ Even if we may not talk at first we still love meeting people!! Don't be afraid 
 </details>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/1a26513461caa8c4d274dc6c0c22d5d9c0365299/lalalal%20yaoi.webp" width="400"/>
+<img src="https://github.com/kittydummy/kittydummy/blob/1dee501466c875fb3c507ad3034e24355398ea5e/TRANS%20LEZUS.jpg" width="400"/>
 </p>
 <p align="center">
   <sub>
