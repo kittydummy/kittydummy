@@ -29,13 +29,14 @@ We don't like being referred as a female in any way, please only do that when a 
 Roblox myths please interact you all are so cool we love you guys /p
     <p align="center">
       We don't like being purposely ignored or anything for long periods of time. Sorry.
+  <p align="center">
+    We can be very sensitive at times - Be careful of what you say unless you're mentioned on our profile ^q^.
 <p align="center">
 There is no cure to ASPD, but we're actively working on managing it and reducing harmful behaviors. We are terribly sorry if we have ever hurt you.
-  
 <p align="center">
 Even if we may not talk at first we still love meeting people!! Don't be afraid to sit near us ^_^.
   <p align="center">
-<sub>It's NONE of your business to why we choose not to speak and do not pressure us into doing so. If you REALLY can't handle it, DNI. It's not a big deal. </sub>
+<sub>If you can't handle us being mute at first, DNI. You don't gotta make it a big deal, okay...? Okay!! </sub>
 
       
   </div>
