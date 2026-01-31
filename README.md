@@ -43,7 +43,7 @@ Even if we may not talk at first we still love meeting people!! Don't be afraid 
 </details>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/70460f41051f4ba8a5aef1d8348421e053e921c0/Ohm%20y%20god%20bruh.png" width="400"/>
+<img src="https://github.com/kittydummy/kittydummy/blob/6ab7590a0b27da4615997289574ae7185ad3c2d4/bunnoli.png" width="400"/>
 </p>
 <p align="center">
   <sub>
