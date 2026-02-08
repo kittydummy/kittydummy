@@ -1,5 +1,4 @@
-<p align="center">
-<img src="https://komarev.com/ghpvc/?username=kittydummy&label=frags&color=CFBF64&style=flat" />
+
 </p>
 <p align="center">
 <sub>
