@@ -1,15 +1,18 @@
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=kittydummy&label=toys&color=F2E36D&style=flat" />
+</p>
 
 </p>
 <p align="center">
 <sub>
-tick  ,  tock  ,  tick  ,  tock <br>
+what's  the  time?  playtime! <br>
   OSDD  .  ASPD <br>
 iwc at all times pls
 <sub>
 
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/6ab7590a0b27da4615997289574ae7185ad3c2d4/bunnoli.png" width="400"/>
+<img src="https://github.com/kittydummy/kittydummy/blob/5522ece1dccfd822d267a0bee35c63dbdc2ed439/player%20transparent%20.%20ppt.png" width="400"/>
 </p>
 <p align="center">
   <sub>
