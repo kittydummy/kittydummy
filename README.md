@@ -19,7 +19,7 @@ go follow <a href="https://github.com/cookiechii">these</a> <a href="https://kit
 <a href="https://kittydummy.atabook.org">atabook</a> ·
     <a href="https://evanumaa.straw.page/">strawpage</a> ·
 <a href="https://guns.lol/meowzus">guns.lol</a> ·
-     <a href="https://en.pronouns.page/@kittydummy">pronouns</a>
+     <a href="https://en.pronouns.page/@evanuma">pronouns</a>
   </sub>
 </p>
 
