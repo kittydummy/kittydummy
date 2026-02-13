@@ -7,7 +7,7 @@
 <sub>
 tick  ,  tock  ,  tick ,  tock  <br>
   OSDD  .  ASPD <br>
-iwc at all times pls
+go follow <a href="https://github.com/cookiechii">these</a> <a href="https://kittydummy.atabook.org">losers</a> ok?
 <sub>
 
 
