@@ -21,14 +21,17 @@ go⠀⠀follow⠀⠀<a href="https://github.com/cookiechii">these</a>⠀⠀<a hr
 <a href="https://guns.lol/meowzus">guns.lol</a>⠀⠀·⠀⠀
      <a href="https://en.pronouns.page/@evanuma">pronouns</a>
   </sub>
+<p align="center">
+  <sub>
+    <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&pause=100&color=F2E36D&center=true&vCenter=true&width=400&lines=%22What%E2%80%99s%E3%85%A4the%E3%85%A4time%E3%85%A4%3F%22;%22Playtime%E3%85%A4%21%22" />
+  </sub>
 </p>
 
-</sub>
-<p align="center">
-<sub>
-( ;´･ω･`)
-<p align="center">
-  
+
+
+
+
+
 ---
   
 <p align="center">
