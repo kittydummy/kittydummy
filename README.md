@@ -35,5 +35,6 @@ go follow <a href="https://github.com/cookiechii">these</a> <a href="https://git
 <img src="https://github.com/kittydummy/kittydummy/blob/6684393178f4aaec166b1ab3a95a8229a7486f5d/lezusandnolifightingreal.gif" width="300"/> <br>
   <sub>
 (lezuz and noli fighting, NOT fake ;-;)
+<p align="center">
 <a href="https://docs.google.com/document/d/1w2SqGLKJjcF7HgRfbv4l2RdZAFdYuzt3BMWElqFhiFA/edit?tab=t.0">ren doc</a>
   
