@@ -32,7 +32,10 @@ go⠀⠀follow⠀⠀<a href="https://github.com/cookiechii">these</a>⠀⠀<a hr
 
 
 
----
+<p align="center">
+<img src="https://github.com/kittydummy/kittydummy/blob/bf94dce2ba3a8e8c4909cbca2e6101fc9f34b5e5/YELLOW%20DIVIDER.png" width="9000"/>
+</p>
+<p align="center">
   
 <p align="center">
 <img src="https://github.com/kittydummy/kittydummy/blob/6684393178f4aaec166b1ab3a95a8229a7486f5d/lezusandnolifightingreal.gif" width="300"/> <br>
