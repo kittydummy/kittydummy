@@ -7,7 +7,7 @@
 <sub>
 tick  ,  tock  ,  tick ,  tock  <br>
   OSDD  .  ASPD <br>
-go follow <a href="https://github.com/cookiechii">these</a> <a href="https://kittydummy.atabook.org">losers</a> ok?
+go follow <a href="https://github.com/cookiechii">these</a> <a href="https://github.com/Avariceee">losers</a> ok?
 <sub>
 
 
