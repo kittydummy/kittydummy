@@ -12,7 +12,7 @@ go⠀⠀follow⠀⠀<a href="https://github.com/KISSYMISSYIRL">these</a>⠀⠀<a
 
 
 <p align="center">
-  <img src="https://github.com/kittydummy/kittydummy/blob/5522ece1dccfd822d267a0bee35c63dbdc2ed439/player%20transparent%20.%20ppt.png?raw=true" width="400" height="-10"/>
+  <img src="https://github.com/kittydummy/kittydummy/blob/5522ece1dccfd822d267a0bee35c63dbdc2ed439/player%20transparent%20.%20ppt.png?raw=true" width="300" height="-10"/>
 </p>
 
 
