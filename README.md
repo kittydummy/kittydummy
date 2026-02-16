@@ -40,5 +40,5 @@ go⠀⠀follow⠀⠀<a href="https://github.com/KISSYMISSYIRL">these</a>⠀⠀<a
   <sub>
 (lezus and noli fighting, NOT fake ;-;)
 <p align="center">
-<a href="https://docs.google.com/document/d/1w2SqGLKJjcF7HgRfbv4l2RdZAFdYuzt3BMWElqFhiFA/edit?tab=t.0">ren doc</a>
+<a href="https://docs.google.com/document/d/1QstN2x-mhcTCbhaAPDhgtBwU3J7zm_Kju41AZ2G2Mkk/edit?usp=sharing">ren doc</a>
   
