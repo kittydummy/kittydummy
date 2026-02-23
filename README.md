@@ -23,7 +23,7 @@ go⠀⠀follow⠀⠀<a href="https://github.com/KISSYMISSYIRL">these</a>⠀⠀<a
 <a href="https://kittydummy.atabook.org">atabook</a>⠀⠀·⠀⠀
     <a href="https://evanumaa.straw.page/">strawpage</a>⠀⠀·⠀⠀
 <a href="https://guns.lol/meowzus">guns.lol</a>⠀⠀·⠀⠀
-     <a href="https://en.pronouns.page/@evanuma">pronouns</a>
+     <a href="https://pronouns.cc/@evanuma">pronouns</a>
   </sub>
 <div align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=12&height=37&pause=100&color=F2E36D&center=true&vCenter=true&width=400&lines=%22What%E2%80%99s%E3%85%A4the%E3%85%A4time%E3%85%A4%3F%22;%22Playtime%E3%85%A4%21%22" />
