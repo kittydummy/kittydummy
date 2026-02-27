@@ -1,4 +1,6 @@
-
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=kittydummy&label=toys&color=F2E36D&style=flat" />
+</p>
 
 </p>
 <p align="center">
