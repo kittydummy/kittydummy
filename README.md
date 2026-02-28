@@ -39,6 +39,4 @@ go⠀⠀follow⠀⠀<a href="https://github.com/KISSYMISSYIRL">these</a>⠀⠀<a
 <img src="https://github.com/kittydummy/kittydummy/blob/6684393178f4aaec166b1ab3a95a8229a7486f5d/lezusandnolifightingreal.gif" width="300"/> <br>
   <sub>
 (lezus and noli fighting, NOT fake ;-;)
-<p align="center">
-<a href="https://docs.google.com/document/d/1QDGzDGT05eFoFhIQbe-hYewL-_CNKo_56ytdshhxcfA/edit?usp=sharing">ren doc</a>
   
