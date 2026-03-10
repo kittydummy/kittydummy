@@ -9,6 +9,12 @@
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=40&height=80&pause=100&color=FFE10B&center=true&vCenter=true&width=900&lines=%22What%27s+the+time%3F%22;%22Playtime%21%22" />
 </p>
 
+</p>
+<p align="center">
+follow⠀⠀<a href="https://github.com/KISSYMISSYIRL">these</a>⠀⠀<a href="https://github.com/Avariceee">losers</a>⠀⠀now <br>
+so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
+</p>
+
 <p align="center">
 <img src="https://github.com/kittydummy/kittydummy/blob/a1ede5b4e145ffa08b507e90fcb747e5c97fb2f6/ChloesimaginationOnTumblr.png"width="400"/>
 </p>
