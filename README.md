@@ -11,7 +11,7 @@
 
 </p>
 <p align="center">
-follow⠀⠀<a href="https://github.com/KISSYMISSYIRL">these</a>⠀⠀<a href="https://github.com/Avariceee">losers</a>⠀⠀now <br>
+follow⠀⠀<a href="https://github.com/koixzu">these</a>⠀⠀<a href="https://github.com/Avariceee">losers</a>⠀⠀now <br>
 so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
 </p>
 
