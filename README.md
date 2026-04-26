@@ -21,10 +21,12 @@ so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
 
 <p align="center">
   <sub>
-<img src="https://github.com/lezusirl/lezusirl/blob/99ae1d1e07c97d4509492862dbb9f687c330d24f/tumblr_f88321619006f93b1b348ddadf4f36e7_1c0f2fc9_75.webp"> <a href="https://kittydummy.atabook.org">ATABOOK</a>ㅤ
+<img src="https://github.com/lezusirl/lezusirl/blob/99ae1d1e07c97d4509492862dbb9f687c330d24f/tumblr_f88321619006f93b1b348ddadf4f36e7_1c0f2fc9_75.webp">ㅤ<a href="https://kittydummy.atabook.org">ATABOOK</a>ㅤ
 <a href="https://guns.lol/meowzus">GUNS</a>ㅤ
 <a href="https://evawuffz.straw.page/">STRAWPAGE</a>ㅤ
-<a href="https://pronouns.cc/@evanuma">PRONOUNS</a> <img src="https://github.com/lezusirl/lezusirl/blob/337d5598c65f5d26842af7e524efbeba8b657b2e/tumblr_dcf556d2d0b9d03173c01656714e3bd8_5bde3f00_75.webp">
+<a href="https://pronouns.cc/@evanuma">PRONOUNS</a>ㅤ
+<a href="https://rentry.co/evawuffz">RENTRY</a>ㅤ
+<img src="https://github.com/lezusirl/lezusirl/blob/337d5598c65f5d26842af7e524efbeba8b657b2e/tumblr_dcf556d2d0b9d03173c01656714e3bd8_5bde3f00_75.webp">
   </sub>
 </p>
 <p align="center">
