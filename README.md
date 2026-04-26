@@ -1,6 +1,6 @@
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/bf94dce2ba3a8e8c4909cbca2e6101fc9f34b5e5/YELLOW%20DIVIDER.png" width="9000" />
-  
+<img src="https://github.com/kittydummy/kittydummy/blob/1cfb4102896c81bab13e3fcd1ec891c0166263eb/crayoladivider1.webp" width="6000" />  
+
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=kittydummy&label=toys&color=FFDA06&style=flat" />
 </p>
@@ -16,12 +16,12 @@ so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
 </p>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/a1ede5b4e145ffa08b507e90fcb747e5c97fb2f6/ChloesimaginationOnTumblr.png"width="400"/>
+<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/da%20silly%20walking.webp"width="400"/>
 </p>
 
 <p align="center">
   <sub>
-<img src="https://github.com/lezusirl/lezusirl/blob/99ae1d1e07c97d4509492862dbb9f687c330d24f/tumblr_f88321619006f93b1b348ddadf4f36e7_1c0f2fc9_75.webp">ㅤ<a href="https://kittydummy.atabook.org">ATABOOK</a>ㅤ
+<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/Rainbow%20GIFmoji.webp">ㅤ<a href="https://kittydummy.atabook.org">ATABOOK</a>ㅤ
 <a href="https://guns.lol/meowzus">GUNS</a>ㅤ
 <a href="https://evawuffz.straw.page/">STRAWPAGE</a>ㅤ
 <a href="https://pronouns.cc/@evanuma">PRONOUNS</a>ㅤ
@@ -30,9 +30,9 @@ so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
   </sub>
 </p>
 <p align="center">
-<img src="https://github.com/lezusirl/lezusirl/blob/07c6ef18ccf47b12b53d395680b9b1a7dc9bb0e0/tumblr_d94811485f9eae4c7ec9e0fc19139698_404c7e51_100.webp" width="150">
+<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/Selective%20mutism.webp" width="150">
 </p>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/bf94dce2ba3a8e8c4909cbca2e6101fc9f34b5e5/YELLOW%20DIVIDER.png"/>
+<img src="https://github.com/kittydummy/kittydummy/blob/f6c7c0a5a75536025683a0cc96a0d7a631c88710/crayoladivider2.webp" width="6000" />
 </p>
