@@ -21,11 +21,12 @@ so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
 
 <p align="center">
   <sub>
-<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/Rainbow%20GIFmoji.webp">ㅤ<a href="https://kittydummy.atabook.org">ATABOOK</a>ㅤ
+<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/Rainbow%20GIFmoji.webp">ㅤ<a href="https://kittydummy.atabook.org">ATA</a>ㅤ
 <a href="https://guns.lol/meowzus">GUNS</a>ㅤ
-<a href="https://evawuffz.straw.page/">STRAWPAGE</a>ㅤ
-<a href="https://pronouns.cc/@evanuma">PRONOUNS</a>ㅤ
+<a href="https://evawuffz.straw.page/">STRAW</a>ㅤ
+<a href="https://pronouns.cc/@evanuma">PRNS</a>ㅤ
 <a href="https://rentry.co/evawuffz">RENTRY</a>ㅤ
+<a href="https://rentry.co/evanznmawia">SHARED <3</a>ㅤ
 <img src="https://github.com/lezusirl/lezusirl/blob/337d5598c65f5d26842af7e524efbeba8b657b2e/tumblr_dcf556d2d0b9d03173c01656714e3bd8_5bde3f00_75.webp">
   </sub>
 </p>
