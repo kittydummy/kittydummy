@@ -12,7 +12,7 @@
 </p>
 <p align="center">
 ${\color{#FFDF00}\text{foᥣᥣow}}$⠀⠀ <a href="https://github.com/koixzu">thᥱsᥱ</a>⠀⠀ <a href="https://github.com/Avariceee">ᥣosᥱrs</a>⠀⠀ ${\color{#FFDF00}\text{ᥒow}}$ <br>
-${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{thᥱყ}}$⠀⠀ ${\color{#FFCC00}\text{ᥴᥲᥒ}}$⠀⠀ ${\color{#FFBF00}\text{stoρ}}$⠀⠀ ${\color{#FFB700}\text{hoᥣdιᥒg}}$⠀⠀ ${\color{#FFAA00}\text{υs}}$⠀⠀ ${\color{#F08400}\text{hostᥲgᥱ}}$
+${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{thᥱy}}$⠀⠀ ${\color{#FFCC00}\text{ᥴᥲᥒ}}$⠀⠀ ${\color{#FFBF00}\text{stoρ}}$⠀⠀ ${\color{#FFB700}\text{hoᥣdιᥒg}}$⠀⠀ ${\color{#FFAA00}\text{υs}}$⠀⠀ ${\color{#F08400}\text{hostᥲgᥱ}}$
 </p>
 
 <p align="center">
@@ -25,7 +25,7 @@ ${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{thᥱყ}}$⠀⠀ ${\c
 <a href="https://guns.lol/meowzus">gυᥒs</a>ㅤ
 <a href="https://evawuffz.straw.page/">strᥲw</a>ㅤ
 <a href="https://pronouns.cc/@evanuma">ρrᥒs</a>ㅤ
-<a href="https://rentry.co/evawuffz">rᥱᥒtrყ</a>ㅤ
+<a href="https://rentry.co/evawuffz">rᥱᥒtry</a>ㅤ
 <a href="https://rentry.co/evanznmawia">shᥲrᥱd!!</a>ㅤ
 <img src="https://github.com/lezusirl/lezusirl/blob/337d5598c65f5d26842af7e524efbeba8b657b2e/tumblr_dcf556d2d0b9d03173c01656714e3bd8_5bde3f00_75.webp">
   </sub>
