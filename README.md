@@ -11,8 +11,8 @@
 
 </p>
 <p align="center">
-follow⠀⠀<a href="https://github.com/koixzu">these</a>⠀⠀<a href="https://github.com/Avariceee">losers</a>⠀⠀now <br>
-so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
+${\color{#FFDF00}\text{foᥣᥣow}}$⠀⠀ <a href="https://github.com/koixzu">thᥱsᥱ</a>⠀⠀ <a href="https://github.com/Avariceee">ᥣosᥱrs</a>⠀⠀ ${\color{#FFDF00}\text{ᥒow}}$ <br>
+${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{thᥱყ}}$⠀⠀ ${\color{#FFCC00}\text{ᥴᥲᥒ}}$⠀⠀ ${\color{#FFBF00}\text{stoρ}}$⠀⠀ ${\color{#FFB700}\text{hoᥣdιᥒg}}$⠀⠀ ${\color{#FFAA00}\text{υs}}$⠀⠀ ${\color{#F08400}\text{hostᥲgᥱ}}$
 </p>
 
 <p align="center">
@@ -21,12 +21,12 @@ so⠀⠀they⠀⠀can⠀⠀stop⠀⠀holding⠀⠀us⠀⠀hostage
 
 <p align="center">
   <sub>
-<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/Rainbow%20GIFmoji.webp">ㅤ<a href="https://kittydummy.atabook.org">ATA</a>ㅤ
-<a href="https://guns.lol/meowzus">GUNS</a>ㅤ
-<a href="https://evawuffz.straw.page/">STRAW</a>ㅤ
-<a href="https://pronouns.cc/@evanuma">PRNS</a>ㅤ
-<a href="https://rentry.co/evawuffz">RENTRY</a>ㅤ
-<a href="https://rentry.co/evanznmawia">SHARED!!</a>ㅤ
+<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/Rainbow%20GIFmoji.webp">ㅤ<a href="https://kittydummy.atabook.org">ᥲtᥲ</a>ㅤ
+<a href="https://guns.lol/meowzus">gυᥒs</a>ㅤ
+<a href="https://evawuffz.straw.page/">strᥲw</a>ㅤ
+<a href="https://pronouns.cc/@evanuma">ρrᥒs</a>ㅤ
+<a href="https://rentry.co/evawuffz">rᥱᥒtrყ</a>ㅤ
+<a href="https://rentry.co/evanznmawia">shᥲrᥱd!!</a>ㅤ
 <img src="https://github.com/lezusirl/lezusirl/blob/337d5598c65f5d26842af7e524efbeba8b657b2e/tumblr_dcf556d2d0b9d03173c01656714e3bd8_5bde3f00_75.webp">
   </sub>
 </p>
