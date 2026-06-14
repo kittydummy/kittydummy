@@ -26,7 +26,6 @@ ${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{thᥱy}}$⠀⠀ ${\col
 <a href="https://evawuffz.straw.page/">strᥲw</a>ㅤ
 <a href="https://pronouns.cc/@evanuma">ρrᥒs</a>ㅤ
 <a href="https://rentry.co/evawuffz">rᥱᥒtry</a>ㅤ
-<a href="https://rentry.co/evanznmawia">shᥲrᥱd!!</a>ㅤ
 <img src="https://github.com/lezusirl/lezusirl/blob/337d5598c65f5d26842af7e524efbeba8b657b2e/tumblr_dcf556d2d0b9d03173c01656714e3bd8_5bde3f00_75.webp">
   </sub>
 </p>
