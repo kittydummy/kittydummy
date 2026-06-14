@@ -11,12 +11,16 @@
 
 </p>
 <p align="center">
-${\color{#FFDF00}\text{foᥣᥣow}}$⠀⠀ <a href="https://github.com/koixzu">thᥱsᥱ</a>⠀⠀ <a href="https://github.com/Avariceee">ᥣosᥱrs</a>⠀⠀ ${\color{#FFDF00}\text{ᥒow}}$ <br>
-${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{thᥱy}}$⠀⠀ ${\color{#FFCC00}\text{ᥴᥲᥒ}}$⠀⠀ ${\color{#FFBF00}\text{stoρ}}$⠀⠀ ${\color{#FFB700}\text{hoᥣdιᥒg}}$⠀⠀ ${\color{#FFAA00}\text{υs}}$⠀⠀ ${\color{#F08400}\text{hostᥲgᥱ}}$
+${\color{#FFDF00}\text{follow}}$⠀⠀ <a href="https://github.com/koixzu">these</a>⠀⠀ <a href="https://github.com/Avariceee">pupsters</a>⠀⠀ ${\color{#FFDF00}\text{now}}$ <br>
+${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{they}}$⠀⠀ ${\color{#FFCC00}\text{can}}$⠀⠀ ${\color{#FFBF00}\text{stop}}$⠀⠀ ${\color{#FFB700}\text{holding}}$⠀⠀ ${\color{#FFAA00}\text{us}}$⠀⠀ ${\color{#F08400}\text{hostage}}$
 </p>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/da%20silly%20walking.webp"width="400"/>
+<img src="https://github.com/kittydummy/kittydummy/blob/249b0e37e4a7fae8a33bbf3b22295b9d6e4e5a30/Untitled796_20260409195653%20(2).webp"width="400"/>
+</p>
+
+<p align="center">
+<sub> <a href="https://www.tumblr.com/sh1nn11">⮤ ic</a> </sub>
 </p>
 
 <p align="center">
@@ -30,7 +34,7 @@ ${\color{#FFDF00}\text{so}}$⠀⠀ ${\color{#FFD000}\text{thᥱy}}$⠀⠀ ${\col
   </sub>
 </p>
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/5117ef31e3f47daf41daed1b4e5b7818c44ba831/Selective%20mutism.webp" width="150">
+<img src="https://64.media.tumblr.com/ee7535cb40e0facb5365d6bfa94edebe/383f433df47b31c2-b1/s100x200/1b8985cd2810667e325d0793d3b145b956be0a25.gifv" width="120">
 </p>
 
 <p align="center">
