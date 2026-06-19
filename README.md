@@ -2,7 +2,7 @@
 <img src="https://github.com/kittydummy/kittydummy/blob/1cfb4102896c81bab13e3fcd1ec891c0166263eb/crayoladivider1.webp" width="6000" />  
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=kittydummy&label=toys&color=FFDA06&style=flat" />
+<a href="https://hits.sh/github.com/kittydummy/"><img alt="Hits" src="https://hits.sh/github.com/kittydummy.svg?style=flat-square&label=toys&color=ff0e00&labelColor=ffe400"/></a>
 </p>
 
 <p align="center">
