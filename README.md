@@ -27,3 +27,8 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
     <img src="https://github.com/kittydummy/kittydummy/blob/fa842f435a16214321a0b92c9a7dfe7ea998a0c4/can%20you%20guys%20see%20what%20i%20name%20these%20hello.webp" width="120"/>
   </a>
 </p>
+
+<p align="center">
+<img src="https://i.pinimg.com/1200x/b9/b4/1b/b9b41b50989351ad89c7e886c83ca612.jpg" width="180"/>
+</p>
+
