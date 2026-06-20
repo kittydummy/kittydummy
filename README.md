@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/73c479f167927afc5ae0a32ef4f7b3e70a2ed164/blahhblahme.webp" width="570" />
+<img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/me.webp" width="570" />
 </p>
 <p align="center">
 <sub>
@@ -17,13 +17,12 @@ ${\color{#FBE591}\text{ic: anniethecoo1est}}$
 <p align="center">
 ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$ <br> ${\color{#E69D1E}\text{player fictionkins dni . do not copy nor take inspo strictly}}$
 </p>
-
 <p align="center">
-  <a href="https://kittydummy.atabook.org/">
-    <img src="https://github.com/kittydummy/kittydummy/blob/fa842f435a16214321a0b92c9a7dfe7ea998a0c4/ata.webp" width="120"/>
-  </a>⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀<a href="https://evawuffz.straw.page/">
-    <img src="https://github.com/kittydummy/kittydummy/blob/fa842f435a16214321a0b92c9a7dfe7ea998a0c4/stttt.webp" width="120"/>
-  </a>⠀⠀⠀⠀⠀⠀⠀ㅤ ⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://guns.lol/meowzus">
-    <img src="https://github.com/kittydummy/kittydummy/blob/fa842f435a16214321a0b92c9a7dfe7ea998a0c4/can%20you%20guys%20see%20what%20i%20name%20these%20hello.webp" width="120"/>
+  <a href="https://guns.lol/meowzus">
+    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/gunslol.webp" width="300" />
+  </a> <a href="https://evawuffz.straw.page/">
+    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/strawpage%20thingy.webp" width="300"/>
+  </a> <a href="https://kittydummy.atabook.org/">
+    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/atauwu.webp"width="300"/>
   </a>
 </p>
