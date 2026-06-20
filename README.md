@@ -19,10 +19,10 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
 </p>
 <p align="center">
   <a href="https://guns.lol/meowzus">
-    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/gunslol.webp" width="300" />
+    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/gunslol.webp" width="200" />
   </a> <a href="https://evawuffz.straw.page/">
-    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/strawpage%20thingy.webp" width="300"/>
+    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/strawpage%20thingy.webp" width="200"/>
   </a> <a href="https://kittydummy.atabook.org/">
-    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/atauwu.webp"width="300"/>
+    <img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/atauwu.webp"width="200"/>
   </a>
 </p>
