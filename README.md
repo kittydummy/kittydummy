@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/73c479f167927afc5ae0a32ef4f7b3e70a2ed164/blahhblahme.webp" width="400" />
+<img src="https://github.com/kittydummy/kittydummy/blob/73c479f167927afc5ae0a32ef4f7b3e70a2ed164/blahhblahme.webp" width="500" />
 </p>
 <p align="center">
 <sub>
@@ -15,7 +15,7 @@ ${\color{#FBE591}\text{ic: anniethecoo1est}}$
 </sub>
 </p>
 <p align="center">
-${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$ <br> ${\color{#E38A1E}\text{do not copy nor take inspo of our ponies strictly}}$
+${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$
 </p>
 
 <p align="center">
