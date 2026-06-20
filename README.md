@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/me.webp" width="570" />
+<img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/me.webp" width="450" />
 </p>
 <p align="center">
 <sub>
