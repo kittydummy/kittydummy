@@ -15,7 +15,7 @@ ${\color{#FBE591}\text{ic: anniethecoo1est}}$
 </sub>
 </p>
 <p align="center">
-${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$
+${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$ <br> ${\color{#E69D1E}\text{player fictionkins dni . do not copy nor take inspo strictly}}$
 </p>
 
 <p align="center">
