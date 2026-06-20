@@ -29,6 +29,6 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
 </p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/204646370e02fd7ef184042bc086a8ed/bdd12e8dfa3d478b-97/s250x400/5befafe93c0386fcf6e01081bb5821e1c7b8a93d.gifv" width="150"/>
+<img src="https://64.media.tumblr.com/204646370e02fd7ef184042bc086a8ed/bdd12e8dfa3d478b-97/s250x400/5befafe93c0386fcf6e01081bb5821e1c7b8a93d.gifv" width="180"/>
 </p>
 
