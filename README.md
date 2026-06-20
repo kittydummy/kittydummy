@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/73c479f167927afc5ae0a32ef4f7b3e70a2ed164/blahhblahme.webp" width="400" />
+<img src="https://github.com/kittydummy/kittydummy/blob/73c479f167927afc5ae0a32ef4f7b3e70a2ed164/blahhblahme.webp" width="600" />
 </p>
 <p align="center">
 <sub>
@@ -15,7 +15,7 @@ ${\color{#FBE591}\text{ic: anniethecoo1est}}$
 </sub>
 </p>
 <p align="center">
-${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$ <br> ${\color{#E69D1E}\text{player fictionkins dni . do not copy nor take inspo strictly}}$
+${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$
 </p>
 
 <p align="center">
@@ -27,10 +27,3 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
     <img src="https://github.com/kittydummy/kittydummy/blob/fa842f435a16214321a0b92c9a7dfe7ea998a0c4/can%20you%20guys%20see%20what%20i%20name%20these%20hello.webp" width="120"/>
   </a>
 </p>
-
-<p align="center">
-</p>
-<p align="center">
-<img src="https://64.media.tumblr.com/204646370e02fd7ef184042bc086a8ed/bdd12e8dfa3d478b-97/s250x400/5befafe93c0386fcf6e01081bb5821e1c7b8a93d.gifv" width="200"/>
-</p>
-
