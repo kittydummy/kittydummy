@@ -26,3 +26,6 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
     <img src="https://github.com/kittydummy/kittydummy/blob/ffecad80b6196bb04135384c83c2b325e7f6cb56/677book.webp"width="150"/>
   </a>
 </p>
+
+<p align="center">
+<img src="https://i.pinimg.com/736x/f2/32/75/f232755e5c8e71dd5972182caea8bd1f.jpg" width="150"/>
