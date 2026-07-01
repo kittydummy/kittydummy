@@ -10,7 +10,7 @@
 <details>
 <summary>${\color{#E69D1E}\text{quick info}}$</summary>
 
-${\color{#F3B82C}\text{system + aspd w other disorders}}$ <br> ${\color{#F3B82C}\text{we block + hide rarely but freely}}$ <br> ${\color{#F3B82C}\text{despite us being on game 24/7 we're not always on tab 24/7, so don't expect replies. if it's something important, just drop it in our atabook}}$ <br> ${\color{#F3B82C}\text{unavailable between 8:40 AM to 3:50 - 4:30 PM, weekdays only. (GMT +1)}}$ <br> ${\color{#F3B82C}\text{we take frequent naps tho so uhh... yea if we're sleeping in game after then we're defo napping}}$ <br> ${\color{#F3B82C}\text{be careful of what you say unless you're mentioned in our gh nd check strawpage 4 more info}}$
+${\color{#F3B82C}\text{system + aspd w other disorders}}$ <br> ${\color{#F3B82C}\text{we block + hide rarely but freely}}$ <br> ${\color{#F3B82C}\text{despite us not talking doesn't mean we dont like meeting new pupsters!! paws at you all }}$ <br> ${\color{#F3B82C}\text{unavailable between 8:40 AM to 3:50 - 4:30 PM, weekdays only. (GMT +1)}}$ <br> ${\color{#F3B82C}\text{we take frequent naps tho so uhh... yea if we're sleeping in game after then we're defo napping}}$ <br> ${\color{#F3B82C}\text{be careful of what you say unless you're mentioned in our gh nd check strawpage 4 more info}}$
 </details>
 </div>
 
