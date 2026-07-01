@@ -36,5 +36,4 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
 </p>
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/f2/32/75/f232755e5c8e71dd5972182caea8bd1f.jpg" width="130"/> <br>
-${\color{#F3B82C}\text{THE player of pony town}}$ <a href="https://github.com/title-town">(𖹭) </a>
+${\color{#F3B82C}\text{THE player of pony town}}$ <br> <a href="https://github.com/title-town">(𖹭) </a>
