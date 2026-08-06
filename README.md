@@ -8,7 +8,7 @@
 
 <div align="center">
 <details>
-<summary>${\color{#E69D1E}\text{quick info}}$</summary>
+<summary>${\color{#E69D1E}\text{pt info}}$</summary>
 
 ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + hide rarely but freely}}$ <br> ${\color{#F3B82C}\text{any fandom ships iwvec unless friends pls}}$ <br> ${\color{#F3B82C}\text{unavailable between 8:40 AM to 3:50 - 4:30 PM, weekdays only. (GMT +1)}}$ <br> ${\color{#F3B82C}\text{we take frequent naps tho so uhh... yea if we're sleeping in game after then we're defo napping}}$ <br> ${\color{#F3B82C}\text{be careful of what you say unless you're mentioned in our gh nd check strawpage 4 more info}}$
 </details>
