@@ -19,7 +19,7 @@ ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + h
 </p>
 <p align="center">
 <sub>
-${\color{#FBE591}\text{ic: me ok HIA hello}}$
+${\color{#FBE591}\text{ic: all art by me hia dnc}}$
 </sub>
 </p>
 <p align="center">
