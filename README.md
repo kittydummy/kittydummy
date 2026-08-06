@@ -39,5 +39,5 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
 ${\color{#F3B82C}\text{THE player of pony town}}$ <br> <a href="https://github.com/title-town">(𖹭) </a>
 
 <p align="center">
-<img src="https://static.wikia.nocookie.net/pplaytime/images/d/d6/Lim%C3%B3nArtwork.png/revision/latest/scale-to-width-down/1000?cb=20250217025522" width=90 />
+<img src="https://static.wikia.nocookie.net/pplaytime/images/e/eb/Playtime_Logo_Variant.png/revision/latest/scale-to-width-down/1000?cb=20260125225813" width=100 />
 </p>
