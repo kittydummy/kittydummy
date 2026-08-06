@@ -15,11 +15,11 @@ ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + h
 </div>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/63b0ad8f6f3f5b62d0ed2077a2bba15ca33fde1a/me.webp" width="450" />
+<img src="https://github.com/kittydummy/kittydummy/blob/41fd1fd9f27a4dacae2b752ee5d8f5651986add9/kinsona%20nyaa.gif" width="420" />
 </p>
 <p align="center">
 <sub>
-${\color{#FBE591}\text{ic: anniethecoo1est}}$
+${\color{#FBE591}\text{ic: me ok HIA hello}}$
 </sub>
 </p>
 <p align="center">
