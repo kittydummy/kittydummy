@@ -10,12 +10,12 @@
 <details>
 <summary>${\color{#E69D1E}\text{quick info}}$</summary>
 
-${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + hide rarely but freely}}$ <br> ${\color{#F3B82C}\text{any fandom ships iwc!! securityangel dniucf + iwvec}}$ <br> ${\color{#F3B82C}\text{unavailable between 8:40 AM to 3:50 - 4:30 PM, weekdays only. (GMT +1)}}$ <br> ${\color{#F3B82C}\text{we take frequent naps tho so uhh... yea if we're sleeping in game after then we're defo napping}}$ <br> ${\color{#F3B82C}\text{be careful of what you say unless you're mentioned in our gh nd check strawpage 4 more info}}$
+${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + hide rarely but freely}}$ <br> ${\color{#F3B82C}\text{any fandom ships iwvec unless friends pls}}$ <br> ${\color{#F3B82C}\text{unavailable between 8:40 AM to 3:50 - 4:30 PM, weekdays only. (GMT +1)}}$ <br> ${\color{#F3B82C}\text{we take frequent naps tho so uhh... yea if we're sleeping in game after then we're defo napping}}$ <br> ${\color{#F3B82C}\text{be careful of what you say unless you're mentioned in our gh nd check strawpage 4 more info}}$
 </details>
 </div>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/41fd1fd9f27a4dacae2b752ee5d8f5651986add9/kinsona%20nyaa.gif" width="420" />
+<img src="https://github.com/kittydummy/kittydummy/blob/41fd1fd9f27a4dacae2b752ee5d8f5651986add9/kinsona%20nyaa.gif" width="430" />
 </p>
 <p align="center">
 <sub>
