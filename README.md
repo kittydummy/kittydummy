@@ -15,7 +15,7 @@ ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + h
 </div>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/dde58ce95f934ea476fe803cc8b9cd670394cc60/ezgif.com-gif-maker%20(4).gif" width="430" />
+<img src="https://github.com/kittydummy/kittydummy/blob/dde58ce95f934ea476fe803cc8b9cd670394cc60/ezgif.com-gif-maker%20(4).gif" width="450" />
 </p>
 <p align="center">
 <sub>
@@ -37,7 +37,3 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
 
 <p align="center">
 ${\color{#F3B82C}\text{THE player of pony town}}$ <br> <a href="https://github.com/title-town">(𖹭) </a>
-
-<p align="center">
-<img src="https://static.wikia.nocookie.net/pplaytime/images/e/eb/Playtime_Logo_Variant.png/revision/latest/scale-to-width-down/1000?cb=20260125225813" width=130 />
-</p>
