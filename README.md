@@ -15,7 +15,7 @@ ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + h
 </div>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/41fd1fd9f27a4dacae2b752ee5d8f5651986add9/kinsona%20nyaa.gif" width="430" />
+<img src="https://github.com/kittydummy/kittydummy/blob/dde58ce95f934ea476fe803cc8b9cd670394cc60/ezgif.com-gif-maker%20(4).gif" width="430" />
 </p>
 <p align="center">
 <sub>
