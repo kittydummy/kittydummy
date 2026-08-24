@@ -15,11 +15,11 @@ ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + h
 </div>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/dde58ce95f934ea476fe803cc8b9cd670394cc60/ezgif.com-gif-maker%20(4).gif" width="450" />
+<img src="https://github.com/kittydummy/kittydummy/blob/dde58ce95f934ea476fe803cc8b9cd670394cc60/blahhblahme.webp" width="450" />
 </p>
 <p align="center">
 <sub>
-${\color{#FBE591}\text{ic: all art by me hia dnc}}$
+${\color{#FBE591}\text{ic: anniethecoo1est | pfp: me}}$
 </sub>
 </p>
 <p align="center">
