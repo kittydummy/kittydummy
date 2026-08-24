@@ -36,4 +36,4 @@ ${\color{#F3B82C}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀repl
 </p>
 
 <p align="center">
-${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭) </a>
+${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭) </a>
