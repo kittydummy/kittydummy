@@ -8,22 +8,22 @@
 
 <div align="center">
 <details>
-<summary>${\color{#E69D1E}\text{pt info}}$</summary>
+<summary>${\color{#E69D1E}\text{pt⠀info}}$</summary>
 
-${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we block + hide rarely but freely}}$ <br> ${\color{#F3B82C}\text{any fandom ships iwvec unless friends pls}}$ <br> ${\color{#F3B82C}\text{side note ANY ships with our high kin strictly dniuvcf}}$ <br> ${\color{#F3B82C}\text{unavailable between 8:40 AM to 3:50 - 4:30 PM, weekdays only. (GMT +1)}}$ <br> ${\color{#F3B82C}\text{we take frequent naps tho so uhh... yea if we're sleeping in game after then we're defo napping}}$ <br> ${\color{#F3B82C}\text{be careful of what you say unless you're mentioned in our gh nd check strawpage 4 more info}}$
+${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we⠀block+⠀hide⠀rarely⠀but⠀freely}}$ <br> ${\color{#F3B82C}\text{any⠀fandom⠀ships⠀iwvec⠀unless⠀friends⠀pls}}$ <br> ${\color{#F3B82C}\text{side⠀note⠀ANY⠀ships⠀with⠀our⠀high⠀kin⠀strictly⠀dniuvcf}}$ <br> ${\color{#F3B82C}\text{usually⠀unavailable⠀between⠀8:40⠀AM⠀to⠀3:50/4:30⠀PM,⠀weekdays⠀only⠀(UTC⠀+1)}}$ <br> ${\color{#F3B82C}\text{we⠀take⠀frequent⠀naps⠀tho⠀so⠀uhh..⠀if⠀we're⠀sleeping⠀in⠀game⠀after⠀then⠀we're⠀defo⠀napping}}$ <br> ${\color{#F3B82C}\text{be⠀careful⠀of⠀what⠀you⠀say⠀unless⠀you're⠀mentioned⠀in⠀our⠀gh⠀nd⠀check⠀strawpage⠀4⠀more⠀info}}$
 </details>
 </div>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/dde58ce95f934ea476fe803cc8b9cd670394cc60/blahhblahme.webp" width="450" />
+<img src="https://github.com/kittydummy/kittydummy/blob/7dacc6bf396304176540da0cc44139e7c8d41a59/ezgif.com-gif-maker%20(8).gif" width="450" />
 </p>
 <p align="center">
 <sub>
-${\color{#FBE591}\text{ic: anniethecoo1est | pfp: me}}$
+${\color{#FBE591}\text{ic:⠀me⠀(kinsona)⠀!!⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </sub>
 </p>
 <p align="center">
-${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless close friends}}$ <br> ${\color{#E69D1E}\text{player fictionkins dni . do not copy nor take inspo strictly}}$
+${\color{#F3B82C}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀replies⠀unless⠀close⠀friends}}$ <br> ${\color{#E69D1E}\text{player⠀fictionkins⠀dni⠀.⠀do⠀not⠀copy⠀nor⠀take⠀inspo⠀strictly}}$
 </p>
 <p align="center">
   <a href="https://guns.lol/meowzus">
@@ -36,4 +36,4 @@ ${\color{#F3B82C}\text{we're usually nonverbal, so don't expect replies unless c
 </p>
 
 <p align="center">
-${\color{#F3B82C}\text{THE player of pony town}}$ <br> <a href="https://github.com/title-town">(𖹭) </a>
+${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭) </a>
