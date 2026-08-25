@@ -19,7 +19,7 @@ ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we⠀block�
 </p>
 <p align="center">
 <sub>
-${\color{#FBE591}\text{pfp:⠀ubi5457⠀on⠀yt⠀|⠀icon:⠀me⠀(♡ˊ͈ ꒳ ˋ͈)}}$
+${\color{#FBE591}\text{pfp:⠀me⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </sub>
 </p>
 <p align="center">
