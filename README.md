@@ -40,4 +40,4 @@ ${\color{#E69D1E}\text{!!⠀MOST⠀of⠀our⠀sites⠀are⠀bright⠀and⠀may�
 </p>
 
 <p align="center">
-${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀and⠀others⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>⠀⠀⠀<a href="https://github.com/music-town">(𖹭)</a>⠀⠀⠀<a href="https://github.com/pt-players">(𖹭)</a>
+${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>
