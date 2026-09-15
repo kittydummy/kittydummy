@@ -36,4 +36,8 @@ ${\color{#F3B82C}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀repl
 </p>
 
 <p align="center">
-${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a> <br> ${\color{#E69D1E}\text{(not⠀gna⠀be⠀that⠀active⠀nowadays⠀ok?⠀ok⠀wuff⠀u⠀all⠀/p)}}$
+${\color{#E69D1E}\text{!!⠀MOST⠀of⠀our⠀sites⠀are⠀bright⠀and⠀may⠀contain⠀flashing⠀colours⠀!!}}$
+</p>
+
+<p align="center">
+${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀and⠀others⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>⠀⠀⠀<a href="https://github.com/music-town">(𖹭)</a>⠀⠀⠀<a href="https://github.com/pt-players">(𖹭)</a>
