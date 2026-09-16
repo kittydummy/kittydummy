@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://hits.sh/github.com/kittydummy/"><img alt="Hits" src="https://hits.sh/github.com/kittydummy.svg?style=for-the-badge&label=(%20%20%E2%89%A7%E1%97%9C%E2%89%A6)&color=7F39CE&labelColor=eeae17"/></a>
+<a href="https://hits.sh/github.com/kittydummy/"><img alt="Hits" src="https://hits.sh/github.com/kittydummy.svg?style=for-the-badge&label=(%20%20%E2%89%A7%E1%97%9C%E2%89%A6)&color=102BD8&labelColor=eeae17"/></a>
 </p>
 
 <p align="center">
@@ -8,9 +8,9 @@
 
 <div align="center">
 <details>
-<summary>${\color{#E69D1E}\text{pt⠀info}}$</summary>
+<summary>${\color{#FCFEFF}\text{pt⠀info}}$</summary>
 
-${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we⠀block⠀+⠀hide⠀rarely⠀but⠀freely}}$ <br> ${\color{#F3B82C}\text{any⠀fandom⠀ships⠀iwvec⠀unless⠀friends⠀pls}}$ <br>  ${\color{#F3B82C}\text{side note; ANY ships of my high kins strictly dni unless very close}}$ <br> ${\color{#F3B82C}\text{usually⠀unavailable⠀between⠀8:40⠀AM⠀to⠀3:50/4:30⠀PM,⠀weekdays⠀only⠀(UTC⠀+1)}}$ <br> ${\color{#F3B82C}\text{we⠀take⠀frequent⠀naps⠀tho⠀so⠀uhh..⠀if⠀we're⠀sleeping⠀in⠀game⠀after⠀then⠀we're⠀defo⠀napping}}$ <br> ${\color{#F3B82C}\text{be⠀careful⠀of⠀what⠀you⠀say⠀unless⠀you're⠀mentioned⠀in⠀our⠀gh⠀nd⠀check⠀strawpage⠀4⠀more⠀info}}$
+${\color{#E8FEFB}\text{system + aspd}}$ <br> ${\color{#F30000}\text{we⠀block⠀+⠀hide⠀rarely⠀but⠀freely}}$ <br> ${\color{#BB0011}\text{any⠀fandom⠀ships⠀iwvec⠀unless⠀friends⠀pls}}$ <br>  ${\color{#F3B82C}\text{side note; ANY ships of my high kins strictly dni unless very close}}$ <br> ${\color{#F68F00}\text{usually⠀unavailable⠀between⠀8:40⠀AM⠀to⠀3:50/4:30⠀PM,⠀weekdays⠀only⠀(UTC⠀+1)}}$ <br> ${\color{#0E33F9}\text{we⠀take⠀frequent⠀naps⠀tho⠀so⠀uhh..⠀if⠀we're⠀sleeping⠀in⠀game⠀after⠀then⠀we're⠀defo⠀napping}}$ <br> ${\color{#102BD8}\text{be⠀careful⠀of⠀what⠀you⠀say⠀unless⠀you're⠀mentioned⠀in⠀our⠀gh⠀nd⠀check⠀strawpage⠀4⠀more⠀info}}$
 </details>
 </div>
 
@@ -19,25 +19,25 @@ ${\color{#F3B82C}\text{system + aspd}}$ <br> ${\color{#F3B82C}\text{we⠀block�
 </p>
 <p align="center">
 <sub>
-${\color{#FBE591}\text{ic:⠀me⠀(♡ˊ͈ ꒳ ˋ͈)}}$
+${\color{#FCFEFF}\text{ic:⠀me⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </sub>
 </p>
 <p align="center">
-${\color{#F3B82C}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀replies⠀unless⠀close⠀friends}}$ <br> ${\color{#E69D1E}\text{player⠀fictionkins⠀dni⠀.⠀do⠀not⠀copy⠀nor⠀take⠀inspo⠀strictly}}$
+${\color{#F8AF00}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀replies⠀unless⠀close⠀friends}}$ <br> ${\color{#F68E00}\text{player⠀fictionkins⠀dni⠀.⠀do⠀not⠀copy⠀nor⠀take⠀inspo⠀strictly}}$
 </p>
 <p align="center">
   <a href="https://guns.lol/meowzus">
-    <img src="https://github.com/kittydummy/kittydummy/blob/ffecad80b6196bb04135384c83c2b325e7f6cb56/NOT%20MY%203RD%20ONE.webp" width="130" />
+    <img src="https://github.com/kittydummy/kittydummy/blob/f121e7ee68fe9e18a8c784b0225e715c24ab4586/g.webp" width="150" />
   </a>⠀⠀<a href="https://evawuffz.straw.page/">
-    <img src="https://github.com/kittydummy/kittydummy/blob/ffecad80b6196bb04135384c83c2b325e7f6cb56/check%20it%20out%20pls.webp" width="130"/>
-  </a> <a href="https://kittydummy.atabook.org/">
-    <img src="https://github.com/kittydummy/kittydummy/blob/ffecad80b6196bb04135384c83c2b325e7f6cb56/677book.webp"width="130"/>
+    <img src="https://github.com/kittydummy/kittydummy/blob/f121e7ee68fe9e18a8c784b0225e715c24ab4586/s.webp" width="150"/>
+  </a>⠀<a href="https://kittydummy.atabook.org/">
+    <img src="https://github.com/kittydummy/kittydummy/blob/f121e7ee68fe9e18a8c784b0225e715c24ab4586/a.webp"width="150"/>
   </a>
 </p>
 
 <p align="center">
-${\color{#E69D1E}\text{!!⠀MOST⠀of⠀our⠀sites⠀are⠀bright⠀and⠀may⠀contain⠀flashing⠀colours⠀!!}}$
+${\color{#FF0D13}\text{!!⠀MOST⠀of⠀our⠀sites⠀are⠀bright⠀and⠀may⠀contain⠀flashing⠀colours⠀!!}}$
 </p>
 
 <p align="center">
-${\color{#F3B82C}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>
+${\color{#F9BE00}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>
