@@ -23,8 +23,8 @@ ${\color{#FCFEFF}\text{ic:⠀me⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </sub>
 </p>
 <p align="center">
-${\color{#F8AF00}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀replies⠀unless⠀close⠀friends}}$ <br> ${\color{#F68E00}\text{player⠀fictionkins⠀dni⠀.⠀do⠀not⠀copy⠀nor⠀take⠀inspo⠀strictly}}$
-</p>
+${\color{#F8AF00}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀replies⠀unless⠀close⠀friends}}$ <br> ${\color{#F68E00}\text{player⠀fictionkins⠀dni⠀.⠀do⠀not⠀copy⠀nor⠀take⠀inspo⠀strictly}}$ <br> <sub> ${\color{#FF0D13}\text{!!⠀MOST⠀of⠀our⠀sites⠀are⠀bright⠀and⠀may⠀contain⠀flashing⠀colours⠀!!}}$ </sub>
+
 <p align="center">
   <a href="https://guns.lol/meowzus">
     <img src="https://github.com/kittydummy/kittydummy/blob/f121e7ee68fe9e18a8c784b0225e715c24ab4586/g.webp" width="150" />
@@ -36,7 +36,7 @@ ${\color{#F8AF00}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀repl
 </p>
 
 <p align="center">
-${\color{#FF0D13}\text{!!⠀MOST⠀of⠀our⠀sites⠀are⠀bright⠀and⠀may⠀contain⠀flashing⠀colours⠀!!}}$
+<img src="https://64.media.tumblr.com/70392b5ff9b288da3a8c916340c50e2f/da5110e79d297768-fb/s2048x3072/0bd30c8c874a523f0f7613f9b7dca1f6bda600d1.pnj" width=460>
 </p>
 
 <p align="center">
