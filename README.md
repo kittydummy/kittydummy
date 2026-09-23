@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://hits.sh/github.com/kittydummy/"><img alt="Hits" src="https://hits.sh/github.com/kittydummy.svg?style=for-the-badge&label=(%20%E2%89%A7%E3%83%AE%E2%89%A6)&extraCount=4400&color=674112&labelColor=BB9937"/></a>
+<a href="https://hits.sh/github.com/kittydummy/"><img alt="Hits" src="https://hits.sh/github.com/kittydummy.svg?style=for-the-badge&label=%E0%AC%98(%E0%A9%AD%CB%8A%E1%B5%95%CB%8B)%E0%A9%AD&extraCount=1990&color=4C381D&labelColor=BB9A39"/></a>
 </p>
 
 <p align="center">
@@ -10,7 +10,7 @@
 <details>
 <summary>${\color{#D7D9A7}\text{pt⠀info}}$</summary>
 
-${\color{#B0A250}\text{system + aspd}}$ <br> ${\color{#B0A250}\text{we⠀block⠀+⠀hide⠀rarely⠀but⠀freely}}$ <br> ${\color{#B0A250}\text{any⠀fandom⠀ships⠀iwvec⠀unless⠀friends⠀pls}}$ <br>  ${\color{#B0A250}\text{side note; ANY ships of my high kins strictly dni unless very close}}$ <br> ${\color{#BB943C}\text{usually⠀unavailable⠀between⠀8:40⠀AM⠀to⠀3:50/4:30⠀PM,⠀weekdays⠀only⠀(UTC⠀+1)}}$ <br> ${\color{#BB943C}\text{we⠀take⠀frequent⠀naps⠀tho⠀so⠀uhh..⠀if⠀we're⠀sleeping⠀in⠀game⠀after⠀then⠀we're⠀defo⠀napping}}$ <br> ${\color{#BB943C}\text{be⠀careful⠀of⠀what⠀you⠀say⠀unless⠀you're⠀mentioned⠀in⠀our⠀gh⠀nd⠀check⠀strawpage⠀4⠀more⠀info}}$
+${\color{#B0A250}\text{system + aspd}}$ <br> ${\color{#B0A250}\text{we⠀block⠀+⠀hide⠀rarely⠀but⠀freely}}$ <br> ${\color{#B0A250}\text{any⠀fandom⠀ships⠀iwvec⠀unless⠀friends⠀pls}}$ <br>  ${\color{#B89F3D}\text{side note; ANY ships of my high kins strictly dni unless very close}}$ <br> ${\color{#BB943C}\text{usually⠀unavailable⠀between⠀8:40⠀AM⠀to⠀3:50/4:30⠀PM,⠀weekdays⠀only⠀(UTC⠀+1)}}$ <br> ${\color{#BB943C}\text{we⠀take⠀frequent⠀naps⠀tho⠀so⠀uhh..⠀if⠀we're⠀sleeping⠀in⠀game⠀after⠀then⠀we're⠀defo⠀napping}}$ <br> ${\color{#BB943C}\text{be⠀careful⠀of⠀what⠀you⠀say⠀unless⠀you're⠀mentioned⠀in⠀our⠀gh⠀nd⠀check⠀strawpage⠀4⠀more⠀info}}$
 </details>
 </div>
 
@@ -36,4 +36,4 @@ ${\color{#BEB242}\text{we're⠀usually⠀nonverbal,⠀so⠀don't⠀expect⠀repl
 </p>
 
 <p align="center">
-${\color{#C2B354}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>
+${\color{#B89F3D}\text{THE⠀player⠀of⠀pony⠀town,⠀tysm⠀sugar⠀<3}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>
