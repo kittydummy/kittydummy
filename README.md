@@ -15,7 +15,7 @@ ${\color{#B0A250}\text{system + aspd}}$ <br> ${\color{#B0A250}\text{weâ €blockâ 
 </div>
 
 <p align="center">
-<img src="https://github.com/kittydummy/kittydummy/blob/107d1116237c1a735cfabce3f67f969f320fc3f9/tumblr_4a72323b7563e4e876d8b3a7ca0dac16_37be72b1_2048-removebg-preview.png" width="530" />
+<img src="https://github.com/kittydummy/kittydummy/blob/107d1116237c1a735cfabce3f67f969f320fc3f9/tumblr_4a72323b7563e4e876d8b3a7ca0dac16_37be72b1_2048-removebg-preview.png" width="560" />
 </p>
 <p align="center">
 <sub>
