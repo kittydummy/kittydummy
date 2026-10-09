@@ -10,7 +10,7 @@
 <details>
 <summary>${\color{#FFFFFF}\text{pt⠀info}}$</summary>
 
-${\color{#FFBF00}\text{system + aspd}}$ <br> ${\color{#FFBF00}\text{we⠀block⠀+⠀hide⠀rarely⠀but⠀freely}}$ <br> ${\color{#FFBF00}\text{any⠀fandom⠀ships⠀iwvec⠀unless⠀friends⠀pls}}$ <br>  ${\color{#FFBF00}\text{side note; ANY ships of my high kins strictly dni unless very close}}$ <br> ${\color{#FFA100}\text{usually⠀unavailable⠀between⠀8:40⠀AM⠀to⠀3:50/4:30⠀PM,⠀weekdays⠀only⠀(UTC⠀+1)}}$ <br> ${\color{#FF8F00}\text{we⠀take⠀frequent⠀naps⠀tho⠀so⠀uhh..⠀if⠀we're⠀sleeping⠀in⠀game⠀after⠀then⠀we're⠀defo⠀napping}}$ <br> ${\color{#FF8F00}\text{be⠀careful⠀of⠀what⠀you⠀say⠀unless⠀you're⠀mentioned⠀in⠀our⠀gh⠀nd⠀check⠀strawpage⠀4⠀more⠀info}}$
+${\color{#FFBF00}\text{system + aspd}}$ <br> ${\color{#FFBF00}\text{we⠀block⠀+⠀hide⠀rarely⠀but⠀freely}}$ <br> ${\color{#FFBF00}\text{any⠀fandom⠀ships⠀iwvec⠀unless⠀friends⠀pls}}$ <br>  ${\color{#FFBF00}\text{side note; ANY ships of my high kins strictly dni unless very close}}$ <br> ${\color{#FFA100}\text{usually⠀unavailable⠀between⠀8:40⠀AM⠀to⠀3:50/4:30⠀PM,⠀weekdays⠀only⠀(UTC⠀+1)}}$ <br> ${\color{#FF8F00}\text{we⠀take⠀frequent⠀naps⠀tho⠀so⠀uhh..⠀if⠀we're⠀sleeping⠀in⠀game⠀after⠀then⠀we're⠀defo⠀napping}}$ <br> ${\color{#FF8F00}\text{be⠀careful⠀of⠀what⠀you⠀say⠀unless⠀you're⠀mentioned⠀in⠀our⠀gh⠀nd⠀check⠀strawpage⠀b4⠀you⠀int}}$
 </details>
 </div>
 
