@@ -19,16 +19,15 @@
 ${\color{#FFFFFF}\text{ic:⠀anniethecoo1est⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </sub>
 </p>
-
 <p align="center">
-  <a href="https://guns.lol/meowzus">
-    <img src="https://github.com/stuffedmeat/stuffedmeat/blob/98b8a333cb78a04ab19d5570b5b92fc5996af6d0/Untitled9_20261019212007.webp" width="170" />
-  </a>⠀⠀<a href="https://evawuffz.straw.page/">
-    <img src="https://github.com/stuffedmeat/stuffedmeat/blob/afb34da01e39fdcff91b62a7ceacd53ee578011c/Untitled9_20261019212353.webp" width="170"/>
-  </a>⠀<a href="https://kittydummy.atabook.org/">
-    <img src="https://github.com/stuffedmeat/stuffedmeat/blob/98b8a333cb78a04ab19d5570b5b92fc5996af6d0/Untitled9_20261019212009.webp"width="170"/>
-  </a>
+⠀⠀
 </p>
 
 <p align="center">
-${\color{#FDD640}\text{(⠀pony⠀town's⠀player⠀)}}$ <br> <a href="https://github.com/title-town">(𖹭)</a>
+${\color{#FDD640}\text{usually⠀nonverbal⠀unless⠀close⠀friends}}$ <br> ${\color{#FCB731}\text{dnc⠀and⠀no⠀inspo⠀strictly}}$
+</p>
+<p align="center">
+<sub>
+sites r being reworked :P
+</sub>
+</p>
