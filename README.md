@@ -25,7 +25,7 @@ ${\color{#FFFFFF}\text{ic:⠀anniethecoo1est⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </p>
 
 <p align=center>
-${\color{#FDD842}\text{we're⠀usually⠀nonverbal⠀,⠀so⠀don't⠀expect⠀us⠀to⠀reply}}$ <br> ${\color{#FCB634}\text{player⠀fictionkins⠀dni⠀.⠀do⠀not⠀copy⠀nor⠀take⠀inspo⠀strictly}}$
+${\color{#FCD743}\text{we're⠀usually⠀nonverbal⠀,⠀so⠀don't⠀expect⠀us⠀to⠀reply}}$ <br> ${\color{#FCB634}\text{player⠀fictionkins⠀dni⠀.⠀do⠀not⠀copy⠀nor⠀take⠀inspo⠀strictly}}$
 
 <p align="center">
   <a href="https://guns.lol/meowzus">
