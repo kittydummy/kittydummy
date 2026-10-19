@@ -24,6 +24,10 @@ ${\color{#FFFFFF}\text{ic:⠀anniethecoo1est⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </p>
 
 <p align="center">
+${\color{#FCD743}\text{usually⠀nonverbal⠀unless⠀close}}$ <br> ${\color{#FCB940}\text{dnc⠀and⠀no⠀inspo⠀strictly}}$
+</p>
+
+<p align="center">
   <a href="https://guns.lol/meowzus">
     <img src="https://github.com/stuffedmeat/stuffedmeat/blob/98b8a333cb78a04ab19d5570b5b92fc5996af6d0/Untitled9_20261019212007.webp" width="170" />
   </a>⠀⠀<a href="https://evawuffz.straw.page/">
