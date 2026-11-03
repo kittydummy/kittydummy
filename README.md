@@ -12,7 +12,7 @@
 </p>
 
 <p align=center>
-<img src="https://github.com/kittydummy/kittydummy/blob/0cd6c7822ca2861e63d0cc4dd33603a755fad2a7/Untitled6_20261019204252-ezgif.com-crop.webp" width=380>
+<img src="https://github.com/kittydummy/kittydummy/blob/3eb302ddaccf2588afe49562ca24a5a5c3198478/me.webp" width=400>
 </p>
 <p align="center">
 <sub>
