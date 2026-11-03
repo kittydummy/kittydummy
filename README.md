@@ -37,3 +37,7 @@ ${\color{#FCD743}\text{usually⠀nonverbal⠀unless⠀close}}$ <br> ${\color{#FC
   </a>
 </p>
 
+<p align="center">
+${\color{#FCD743}\text{thank⠀u}}$⠀<a href="https://github.com/title-town">💛</a>
+</p>
+
