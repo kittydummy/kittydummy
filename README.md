@@ -28,7 +28,7 @@ ${\color{#FFF046}\text{usually⠀nonverbal⠀unless⠀close}}$ <br> ${\color{#FF
 </p>
 
 <p align="center">
-  <a href="https://guns.lol/meowzus">
+  <a href="https://guns.lol/puppybutch">
     <img src="https://github.com/stuffedmeat/stuffedmeat/blob/98b8a333cb78a04ab19d5570b5b92fc5996af6d0/Untitled9_20261019212007.webp" width="149" />
   </a>⠀⠀<a href="https://rentry.co/evawuffz">
     <img src="https://github.com/kittydummy/kittydummy/blob/f7effd11044f0c7f0d99bba3e0380be5b3e1abbc/Untitled8_20261020122907.webp" width="149"/>
