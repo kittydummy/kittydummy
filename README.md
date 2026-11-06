@@ -42,6 +42,6 @@ ${\color{#FFF046}\text{usually⠀nonverbal⠀unless⠀close}}$ <br> ${\color{#FF
 </p>
 
 <p align="center">
-${\color{#FFF583}\text{thank⠀you}}$ <br> <a href="https://github.com/title-town">(💛)</a>
+${\color{#FFF583}\text{thank⠀you}}$ <br> <a href="https://github.com/title-town">(💛)</a> <br> ${\color{#FFF583}\text{semi⠀active⠀for⠀now}}$
 </p>
 
