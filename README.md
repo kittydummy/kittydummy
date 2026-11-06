@@ -1,6 +1,6 @@
 <p align="center">
 <sub>
-<a href="https://hits.sh/github.com/kittydummy/"><img alt="Hits" src="https://hits.sh/github.com/kittydummy.svg?style=for-the-badge&label=%E0%AC%98(%E0%A9%AD%CB%8A%E1%B5%95%CB%8B)%E0%A9%AD&extraCount=1000&color=4151F1&labelColor=FCD743"/></a>
+<a href="https://hits.sh/github.com/kittydummy/"><img alt="Hits" src="https://hits.sh/github.com/kittydummy.svg?style=for-the-badge&label=%E0%AC%98(%E0%A9%AD%CB%8A%E1%B5%95%CB%8B)%E0%A9%AD&extraCount=1000&color=3950FB&labelColor=FFF046"/></a>
 </sub>
 </p>
 <p align="center">
@@ -8,11 +8,11 @@
 </p>
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=30&height=40&pause=100&color=FDD640&center=true&vCenter=true&width=800&lines=%22What%27s+the+time%3F%22;%22Playtime%21%22" />
+<img src="https://readme-typing-svg.demolab.com?font=Comic+Sans+MS&size=26&height=40&pause=100&color=FFF8B0&center=true&vCenter=true&width=800&lines=%22What%27s+the+time%3F%22;%22Playtime%21%22" />
 </p>
 
 <p align=center>
-<img src="https://github.com/kittydummy/kittydummy/blob/3eb302ddaccf2588afe49562ca24a5a5c3198478/me.webp" width=390>
+<img src="https://github.com/kittydummy/kittydummy/blob/e53d0c6c3b7bb4fa5a8617e62211522d615517df/chatterbox.webp" width=390>
 </p>
 <p align="center">
 <sub>
@@ -24,7 +24,7 @@ ${\color{#FFFFFF}\text{ic:⠀anniethecoo1est⠀(♡ˊ͈ ꒳ ˋ͈)}}$
 </p>
 
 <p align="center">
-${\color{#FCD743}\text{usually⠀nonverbal⠀unless⠀close}}$ <br> ${\color{#FCB940}\text{dnc⠀and⠀no⠀inspo⠀strictly}}$
+${\color{#FFF046}\text{usually⠀nonverbal⠀unless⠀close}}$ <br> ${\color{#FFDC3F}\text{dnc⠀and⠀no⠀inspo⠀strictly}}$
 </p>
 
 <p align="center">
@@ -38,6 +38,6 @@ ${\color{#FCD743}\text{usually⠀nonverbal⠀unless⠀close}}$ <br> ${\color{#FC
 </p>
 
 <p align="center">
-${\color{#FCD743}\text{thank⠀you}}$ <br> <a href="https://github.com/title-town">(💛)</a>
+${\color{#FFF583}\text{thank⠀you}}$ <br> <a href="https://github.com/title-town">(💛)</a>
 </p>
 
